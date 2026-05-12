@@ -1,4 +1,4 @@
-#  
+#  jump to steal lucky blocks Script elite offers the most advanced jump to steal lucky blocks Script, with private server access and auto-heal. Perfect
 
 
 
